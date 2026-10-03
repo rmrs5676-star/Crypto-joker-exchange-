@@ -1,0 +1,1 @@
+There is no widely recognized, verified, or regulated mainstream cryptocurrency exchange or official OTC exchanger named "Crypto Joker" with certified public positive reviews on major tracking platforms.
